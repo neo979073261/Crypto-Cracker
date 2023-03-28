@@ -1,8 +1,6 @@
                                                # Crypto-Cracker
 
-                Trust Wallet Crypto Cracker-message on Telegram/WhatsApp (07979073261) for program 
-
-
+                  Trust Wallet Crypto Cracker-message on Telegram (07979073261) for program 
 
                                              Created using Python 
 
@@ -29,11 +27,14 @@
               And if any errors are found and they are not corrected in the time frame I have stated 
                                       I will refund your money completely.
 
-                                   Lifetime WARRANTY - eternal serviceability.
+                                   Lifetime WARRANTY - eternal serviceability
 
-                                  Lifetime technical support and free updates.
+                                  Lifetime technical support and free updates
+                                 
+                          Full Crypto Cracker Source Code Price - 1 ETH Only (FIX PRICE)
 
-                            Full Crypto Cracker Source Code Price - 1 ETH Only (FIX PRICE)
+![crypto crack 5](https://user-images.githubusercontent.com/126352423/228374406-ffd75575-d88e-4c3f-b06a-3ab0625012a6.jpg)
+                
 
 ![crypto program 2](https://user-images.githubusercontent.com/126352423/228370492-712dd6b0-4bcb-4796-a3f3-e109f58e64b4.jpg)
 
