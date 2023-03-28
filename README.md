@@ -15,3 +15,11 @@ Auto clicking so no need to active when program is running
 For more info contact myself
 
 The file attached is a video of the program in action 
+
+Clean Source Codes Not Obfuscated.
+
+No Coding Skills Required.
+
+Full set up guide step by step
+
+1 on 1 support (24/7)
