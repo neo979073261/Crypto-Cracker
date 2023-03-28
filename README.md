@@ -23,6 +23,8 @@
 
                                               1 on 1 support (24/7)
                                               
+                                Preview of the Cracker | Educational Purposes only
+                                              
                             I vouch for the unquestionable performance of my product!
                    Perfect workability according to the declared characteristics is guaranteed!
               And if any errors are found and they are not corrected in the time frame I have stated 
