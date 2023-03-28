@@ -1,20 +1,20 @@
-                                                 # Crypto-Cracker
+                                               # Crypto-Cracker
 
                 Trust Wallet Crypto Cracker-message on Telegram/WhatsApp (07979073261) for program 
 
 
 
-                                               Created using Python 
+                                             Created using Python 
 
                       The program contains all 2048 words used by Trust Wallet for recovery
 
                                       Can generate 12 word or 24 word phrases
 
-                             Auto clicking so no need to active when program is running
+                            Auto clicking so no need to active when program is running
 
                                           For more info contact myself
 
-                                 The file attached is a video of the program in action 
+                               The file attached is a video of the program in action 
 
                                        Clean Source Codes Not Obfuscated
 
@@ -23,6 +23,17 @@
                                          Full set up guide step by step
 
                                               1 on 1 support (24/7)
+                                              
+                            I vouch for the unquestionable performance of my product!
+                   Perfect workability according to the declared characteristics is guaranteed!
+              And if any errors are found and they are not corrected in the time frame I have stated 
+                                      I will refund your money completely.
+
+                                   Lifetime WARRANTY - eternal serviceability.
+
+                                  Lifetime technical support and free updates.
+
+                            Full Crypto Cracker Source Code Price - 1 ETH Only (FIX PRICE)
 
 ![crypto program 2](https://user-images.githubusercontent.com/126352423/228370492-712dd6b0-4bcb-4796-a3f3-e109f58e64b4.jpg)
 
